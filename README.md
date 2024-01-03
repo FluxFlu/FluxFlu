@@ -1,6 +1,6 @@
 ### Missy the God
 
-- 🐙 Diehard silly-girl programmer who loves lambdas
+- 🐙 17 year-old diehard silly-girl programmer
 - 📜 Very interested by languages
 - 📈 Currently working on peak (invariably)
 - 📻 Pronouns: she/her
