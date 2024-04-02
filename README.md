@@ -1,4 +1,4 @@
-### Missy the God
+### Ashley Chekhov
 
 - 🐙 17 year-old diehard silly-girl programmer
 - 📜 Very interested by languages
